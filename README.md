@@ -1,6 +1,6 @@
 
 Olá, sou a Maria Priscila Palma
-Jovem estudante dedicada, atualmente concluindo o ensino médio e cursando técnico em Informática e Administração. Apaixonada por aprendizado contínuo e descoberta de novos conhecimentos, com uma forte conexão com a fé cristã e o universo.
+uma jovem estudante dedicada, atualmente concluindo o ensino médio e cursando técnico em Informática e Administração. Apaixonada por aprendizado contínuo e descoberta de novos conhecimentos, com uma forte conexão com a fé cristã e o universo.
 
 Meu Perfil Pessoal:
 Proativa, comunicativa e empática, com alta energia e sensibilidade para compreender e se conectar com as pessoas.
